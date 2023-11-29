@@ -1,1 +1,5 @@
 # 2
+Havia uma pequena cidade onde todos os habitantes possuíam um estranho dom: podiam ler mentes. Inicialmente, isso criou uma comunidade unida, mas logo surgiram desconfianças e segredos revelados. Joana, uma jovem tímida, descobriu um antigo diário que falava de uma erva mágica capaz de bloquear a leitura mental.
+Determinada a trazer paz à cidade, Joana embarcou em uma jornada perigosa. Encontrou o eremita sábio, que a guiou por florestas encantadas e montanhas nevadas. Finalmente, alcançaram o jardim secreto onde a erva crescia.
+No entanto, a ganância de alguns habitantes os seguiu. Uma luta intensa aconteceu entre aqueles que buscavam o poder da erva e Joana, que queria usá-la para o bem. No último momento, Joana sacrificou a própria leitura mental em prol da cidade.
+A cidade, agora livre das invasões mentais, experimentou uma verdadeira transformação. As pessoas passaram a se comunicar de maneira mais honesta e compassiva. Joana, embora tenha perdido seu dom, ganhou o respeito e a gratidão de todos. Assim, a pequena cidade floresceu em harmonia, guiada pelo aprendizado de que a verdadeira força reside na empatia.
